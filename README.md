@@ -1,0 +1,1 @@
+# cs673-independent-living-project
